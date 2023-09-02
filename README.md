@@ -1,2 +1,2 @@
 # VRIDDHI
-Unifying students with the society for brighter future
+Unifying students with the society for brighter future..!
